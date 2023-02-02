@@ -5,3 +5,5 @@ Partnered with Hector, Yin, and Fernando
 
 Youtube Demo of Game
 https://youtu.be/HFD4T38eAak
+
+DISCLAIMER: I do not own the music/audio or any of the PNG used. 
